@@ -4,4 +4,4 @@ Currently, I'm studying a Technical Career about Computer Science, and also feed
 
 I like learning new things, specially if those are Computer-Related.🖥️✨
 
-I'm also developing videogames in my free time.
+I'm also developing videogames in my free time.🎮
